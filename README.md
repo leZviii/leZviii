@@ -10,6 +10,6 @@ You can click the Preview link to take a look at your changes.
 
 ## Contact me 📱
 
-1.✉ lezviii@163.com
+1.QQ ： 625008237
 
-2.QQ : 625008237
+2.✉ ： lezviii@163.com
